@@ -11,4 +11,4 @@ Meu nome é Giovanni Giroldo
 
 @jofanegames
 
-![PeashooterGIF](https://tenor.com/pt-BR/view/pvz-peashooter-peashooter-dancing-dancing-gif-12283845711473127663)
+![PeashooterGIF](https://media1.tenor.com/m/qnj8l4wPsO8AAAAC/pvz-peashooter.gif)
